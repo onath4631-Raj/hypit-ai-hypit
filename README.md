@@ -1,1 +1,0 @@
-# hypit-ai-hypit
